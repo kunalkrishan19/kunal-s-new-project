@@ -6,6 +6,9 @@ added new class AIDI2004
 # Here is the new branch added 
 ![image](https://github.com/kunalkrishan19/kunal-s-new-project/assets/145516112/06bb1fd2-a8bf-4e98-8f3e-2a6b33ef4b4d)
 
+![image](https://github.com/kunalkrishan19/kunal-s-new-project/assets/145516112/93bb13b6-975a-4773-8a7d-a4cf9126b311)
+
+
 
 
 
